@@ -18,6 +18,6 @@ bnmbnmbnmbnmbmnbn
 bnmmbnnbmbnbnmbnbnmbn
 bnmbnbnmbn
 bnmbmnbmnbm
-bmbnm
+bmbnmbmbnm
 bnmmbnbmnbnm
 bnmbnmbnmbnm
