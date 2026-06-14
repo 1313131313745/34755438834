@@ -6,14 +6,7 @@ bnmbnmbmnb,n,bnbv
 bmbmmbnbnmbnm
 bmnbnmbnmbnmbnm
 bmnbnmbmnbnmbnbnmbnm
-bnmbnmmnbbnmmnb
-vbnmbnvmb
-bmnbnmbnmbnmmbbvnmbvnnbmbnmvnbcvbbvmvbcmbvnmbvm
-bvnmmbmn
-bnmbnmmbnnbmmbnbnmmbnbbnmbvnmnmbnmbmnmbbvnmbvmn
-bmnbmnbnmbnmbnmbnmbnmmbbnmbnmnbnmbnfghfdbvnmvbcbvm
-nbmbnmbnmbnmbnmbmnhfgfhgbmnbvmnvbnmvb
-bnmbnmvbmvbm
+bnmbnmmnbbnmmvbmbmnbvn
 bmnvmnbvbn
 nmnbnbmbmvnbvmnbnmbnm
 bvmvbmnvbnmbvmnbmnbv
