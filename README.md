@@ -9,5 +9,5 @@ bmnbnmbmn
 bnmbnmmnb
 nbmbnmmbnbnmbnm
 bmnbnmbnm
-bmbnmmbn
+bmbnmmbnbnmbnm
 bnmbnmmbn
