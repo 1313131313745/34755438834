@@ -11,7 +11,7 @@ nbmbnmmbnbnmbnm
 bmnbnmbnmbnmmbn
 bmbnmmbnbnmbnm
 bnmbnmmbnnbmmbn
-bmnbmn
+bmnbmnbnmbnm
 bmnbnm
 bnmmbnbnmmbn
 bnmbmnbnmbnm
