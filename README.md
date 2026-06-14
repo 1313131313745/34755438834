@@ -9,9 +9,4 @@ bmnbnmbmnbnmbnbnmbnm
 bnmbnmmnbbnmmvbmbmnbvn
 bmnvmnbvbn
 nmnbnbmbmvnbvmnbnmbnm
-bvmvbmnvbnmbvmnbmnbv
-vbmbmnv
-vbnmvbmn
-bnmvbn
-vbmnbnvmvbn
-vbmbnm
+bvmvbmnmbnmbnbn
