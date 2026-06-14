@@ -9,7 +9,7 @@ bmnbnmbmn
 bnmbnmmnb
 nbmbnmmbnbnmbnm
 bmnbnmbnmbnmmbnbmbnm
-bmbnmmbnbnmbnmbmnbmn
+bmbnmmbnbnmbnmbmnbmnbnmbnm
 bnmbnmmbnnbmmbnbnmmbnbnmbnm
 bmnbmnbnmbnm
 bmnbnmbnmbnm
