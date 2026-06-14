@@ -19,4 +19,4 @@ bnmmbnnbmbn
 bnmbnbnmbn
 bnmbmn
 bmbnm
-bnmmbn
+bnmmbnbmnbnm
