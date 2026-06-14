@@ -6,7 +6,7 @@ bnmbnmbmn
 bmbmmbn
 bmnbnmbnm
 bmnbnmbmn
-bnmbnmmnb
+bnmbnmmnbbnmmnb
 nbmbnmmbnbnmbnm
 bmnbnmbnmbnmmbnbmbnm
 bmbnmmbnbnmbnmbmnbmnbnmbnm
