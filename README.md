@@ -5,7 +5,7 @@ mbbnmmbn
 bnmbnmbmn
 bmbmmbnbnmbnm
 bmnbnmbnm
-bmnbnmbmn
+bmnbnmbmnbnmbn
 bnmbnmmnbbnmmnb
 nbmbnmmbnbnmbnmbnmbn
 bmnbnmbnmbnmmbnbmbnm
