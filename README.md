@@ -13,7 +13,7 @@ bvmvbmnmbnmbnmbbnmbn
 bnmbmnbmnmbn
 bmnbmnbnmbnmbnmbmn
 bnmbmnbnmbnmbnmbnmbnmbmn
-bnmmbn
+bnmmbnbnmbn
 bnmbnmbnmbnm
 bnmmbnnbmbn
 bnmbnbnmbn
